@@ -18,7 +18,11 @@ Follow my [Instagram](https://www.instagram.com/_evnc/) for photos of my adventu
   - With Michael and Co.
 - Jun 10 - Jun 15: `Venice`
   - Explore for 5 days
-- Jun 15 - July 13: `Eastern Europe` (TBD)
+- Jun 15 - June 22: `Eastern Europe PART ONE` (TBD)
+  - I'll be planning this leg once I'm in Italy. For now it'll stay vague.
+- Jun 23 - June 25: `Taiwan`
+  - Attending Ashish and Annie's wedding
+- Jun 25 - July 13: `Eastern Europe PART TWO` (TBD)
   - I'll be planning this leg once I'm in Italy. For now it'll stay vague.
 - July 14-29: Backpacking in `Colorado`
   - Returning to the states for our yearly traditional backpacking trip with our Danish side of the family.
